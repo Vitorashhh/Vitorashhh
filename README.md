@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning progamming languages (mainly python and javascript).
 - 🌱 I’m currently learning python.
 - 💞️ I’m looking to collaborate on how our society will work in the future.
-- 📫 How to reach me my discord: ashari._.
+- 📫 How to reach me: here's my discord ashari._.
 - 😄 Pronouns: he/him.
 - ⚡ Fun fact: I don't like most of the cakes.
 
